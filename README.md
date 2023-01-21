@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @allain19
-- 👀 I’m interested in making contents about Public Figures
+- 👀 I’m interested in making contents about "undefined"
 - 📫 How to reach me: easylife155@gmail.com
 
 <!---
